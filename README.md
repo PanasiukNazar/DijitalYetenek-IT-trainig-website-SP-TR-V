@@ -1,0 +1,1 @@
+# DijitalYetenek-IT-trainig-website-SP-TR-V
